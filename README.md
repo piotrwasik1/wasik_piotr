@@ -1,1 +1,0 @@
-# wasik_piotr
